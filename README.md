@@ -1,4 +1,4 @@
-## Hi there, Sasa Nadya 👋 
+## Hi there, I am Sasa Nadya 👋 
 
 Since I am still beginner in tech world, this is the start of a whole new journey that I can't wait to share with you all!
 - 👀 I'm interested in many things
